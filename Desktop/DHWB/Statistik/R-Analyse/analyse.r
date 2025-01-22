@@ -1,1 +1,0 @@
-# Statisktik Analyse
